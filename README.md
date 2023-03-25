@@ -1,6 +1,6 @@
 <img src="https://media.giphy.com/media/bGgsc5mWoryfgKBx1u/giphy.gif" align="right" width="400" height= "250">
 
-### Hi ther, I am Sait. :blush:
+### Hi there, I am Sait. :blush:
 ### How to reach me saitsumeli@gmail.com
 <hr>
 
